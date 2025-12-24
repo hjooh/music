@@ -1,5 +1,5 @@
 
-
+for the losers who use yt music :/
 
 # Setup Instructions
 
